@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @giuseppestephan
+- 👀 I’m interested in sustentability
+- 🌱 I’m currently learning Antroposophy
+- 💞️ I’m looking to collaborate on energy
+- 📫 To reach me send message to giuseppe.stephan@alumni.usp.br
+- 😄 Pronouns: Mr.
+- ⚡ Fun fact: I'm 60 years old.
